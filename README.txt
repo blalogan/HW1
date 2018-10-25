@@ -1,2 +1,0 @@
-Blaire
-Chicago Cubs
